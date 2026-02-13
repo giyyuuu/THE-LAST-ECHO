@@ -1,4 +1,4 @@
-WELCOME    TO    THE    LAST    ECHO    HOPE   YOU    ENJOY    ITT
+WELCOME    TO    THE    LAST    ECHO    HOPE   YOU    ENJOY    IT
 
 
 
